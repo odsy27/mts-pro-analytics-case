@@ -1,1 +1,0 @@
-# mts-pro-analytics-case
